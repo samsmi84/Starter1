@@ -1,3 +1,3 @@
 # Starter1
 
-Sam Sam Smarty Pants
+Sam Smith Smarty Pants
